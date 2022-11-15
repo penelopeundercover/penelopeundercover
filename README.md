@@ -6,6 +6,7 @@
       of object-oriented programming.
 - 👯 I love to meet new people!
 - 📫 LinkedIn: www.linkedin.com/in/marianne-seiwert
-- ⚡ I've also been playing the piano since I was 8,
-      and I enjoy reading Jane Austen and A.W. Tozer.
+- ⚡ I was a highly skilled bulldozer operator in my 
+      previous career. I also play the piano and enjoy 
+      reading Jane Austen.
 
